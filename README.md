@@ -14,6 +14,11 @@ Not sure If the coder has a discord
 Alright BYE
 
 btw lol felt like putting these in
+
+
+
+
+
  __                 /                                  
 / _   _ |_ |_ .  _                                     
 \__) (- |_ |_ | | )                                    
